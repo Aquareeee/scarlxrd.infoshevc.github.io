@@ -1,1 +1,1 @@
-# scarlxrd.infoshevc.github.io
+# Mini-site about a series of Scarlxrd
